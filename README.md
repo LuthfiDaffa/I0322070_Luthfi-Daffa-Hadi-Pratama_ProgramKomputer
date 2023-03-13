@@ -1,7 +1,1 @@
-# anehaneh
-gua ketilang
-gara gara
-syauqi
-ga
-pake
-helm
+# I0322070_Luthfi-Daffa-Hadi-Pratama_ProgramKomputer
